@@ -10,6 +10,7 @@ Data Analyst
 
 Connect with me:
 https://www.linkedin.com/in/sharanya-s-830866190/
+
 Languages and Tools
 
 https://www.microsoft.com/en-in/microsoft-365/excel
